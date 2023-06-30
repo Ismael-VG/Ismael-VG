@@ -10,7 +10,7 @@ gracias a recursos que investigo en línea he logrado cumplir objetivos profesio
 
 👋 Hi! I'm Ismael, a current student at the University of Costa Rica.
 
-🧑🏻‍🚀Durante the time that I am enrolled in this university I have searched through different sites on the internet with the intention and desire to improve my knowledge and skills in a professional way during my career as a student.
+🧑🏻‍🚀During the time that I am enrolled in this university I have searched through different sites on the internet with the intention and desire to improve my knowledge and skills in a professional way during my career as a student.
 with the intention and desire to improve my knowledge and skills in a professional way during my career as a student.
 
 I am passionate about computers and everything that has to do with the internet in general, since I was a child I have been interested in it, so my education is generally based in that area.
